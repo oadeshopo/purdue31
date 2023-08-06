@@ -1,1 +1,1 @@
-love God
+God loves me 
